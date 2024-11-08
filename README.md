@@ -13,12 +13,12 @@ Our current list is as follows:
 * I am MAD.
 * JG lives in Mountain View California his ip is-
 * Aww he got the velcro.
-* >vrilfag
+* >>vrilfag
 * I fucking love SCIENCE!
 * I am dark vader.
 * NEVER. FORGET. ALBION.
 * The sole destroyer of Solaris Eternal
-* >numbers in name
+* >>numbers in name
 * ONE EYE
 * OH MY GOD! THEY ADDED DOGS IN MINECRAFT!
 * Ahem @Multicody10, add sex plugin.
