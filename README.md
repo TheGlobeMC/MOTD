@@ -1,9 +1,8 @@
 # CommunityMOTD
 Inspired by it's use on servers like EarthPol and 2b2t, we have a dynamic range of server MOTDs made by the Starlight Network and GlobeMC community!
 
-To suggest one, go to [issues](https://github.com/TheGlobeMC/CommunityMOTD/issues).
-
-Our current list is as follows:
+## List
+Our current MOTDs in use are listed below:
 * The Age-Old Definitive Geopol Experience!
 * Real Earth is overrated!
 * Building a better Earth, one misplaced block at a time!
