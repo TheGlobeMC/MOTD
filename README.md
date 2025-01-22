@@ -41,3 +41,4 @@ Our current MOTDs in use are listed below:
 * Blowing ourselves up in the Dubai Mall!
 * We hit the Pentagon!
 * Insider trading is ILLEGAL
+* Autistic Individual (AI)
