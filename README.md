@@ -26,7 +26,6 @@ Our current MOTDs in use are listed below:
 * Ahem @Multicody10, add sex plugin.
 * remove phantoms
 * If you give him the gold I stg I'll invade France.
-* Poster sucks gay dick
 * Player of the Week: Daei
 * We smoke on purified crack every day!
 * Fuck you, fuck servers, fuck minecraft. Im done.
