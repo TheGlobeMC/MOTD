@@ -16,7 +16,6 @@ Our current MOTDs in use are listed below:
 * I am MAD.
 * JG lives in Mountain View California his ip is-
 * Aww he got the velcro.
-* \>vrilfag
 * I fucking love SCIENCE!
 * I am dark vader.
 * NEVER. FORGET. ALBION.
