@@ -34,9 +34,9 @@ Our current MOTDs in use are listed below:
 * deez nuts
 * Kiss your bride (male)
 * A 100 percent of you is 1/5 of a percent of me.
-* WEDDINGS OVER GET THE FUCK OUT
 * Monroe Doctrine their asses!
 * Blowing ourselves up in the Dubai Mall!
 * We hit the Pentagon!
 * Insider trading is ILLEGAL
 * Autistic Individual (AI)
+* BTFO.
