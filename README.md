@@ -39,4 +39,7 @@ Our current MOTDs in use are listed below:
 * We hit the Pentagon!
 * Insider trading is ILLEGAL
 * Autistic Individual (AI)
-* BTFO.
+* \>BTFO
+* Sponsored by BLACKED!
+* They call me the flakka maniac.
+* The Yakubian truecel gamer paradise.
