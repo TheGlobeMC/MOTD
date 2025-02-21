@@ -41,5 +41,5 @@ Our current MOTDs in use are listed below:
 * Autistic Individual (AI)
 * \>BTFO
 * Sponsored by BLACKED!
-* They call me the flakka maniac.
+* Home of the flakka maniacs!
 * The Yakubian truecel gamer paradise.
