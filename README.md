@@ -43,3 +43,4 @@ Our current MOTDs in use are listed below:
 * Sponsored by BLACKED!
 * Home of the flakka maniacs!
 * The Yakubian truecel gamer paradise.
+* \*knocks ur bottom row of teeth out*
